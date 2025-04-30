@@ -1,1 +1,1 @@
-dk why im here :)
+perpetual student in learning
